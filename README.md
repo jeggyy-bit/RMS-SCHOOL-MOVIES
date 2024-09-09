@@ -1,1 +1,2 @@
-
+THIS IS A GITHUB FOR MOVIES AND STUFF BUT MAINLY FOR MY SCHOOL!!!!!!!!!! IF YOU FIND THIS IDK YOU CAN USE IT
+https://docs.google.com/document/d/1zp_G06eaBpDheWMR0g91Yuu4FW7o9MGapyRjX_RW6TM/edit  
